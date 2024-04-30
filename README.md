@@ -3,7 +3,7 @@
 - I am a fan of the paranormal.
 - I don't know how to use this crap.
 - Pronouns: she
-- Fun fact: games xd
+- Fun fact: I like mob psycho 100
 
 <!---
 sh1geru/sh1geru is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
